@@ -1,0 +1,2 @@
+# ama
+Ask @seanpierce anything!
